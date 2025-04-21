@@ -1,2 +1,2 @@
-# AFILIE-SEAQUI
-Geração de renda com programas de afiliados e marketing mundial.
+# AIRDROPS
+[AIRDROPS](https://www.youtube.com/@centralcriptos/videos)
